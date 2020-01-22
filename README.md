@@ -3,7 +3,7 @@
 
 # Priorities on arrive
 * Bank account set up, before that you need a celphone card and to have enrolled in university.
-* Set up meal card for the canteens (Later when you need to charge the card, use the canteen charging posts instead of the __oficial__ spots, they won't take the __exchange student__ comission).
+* Set up meal card for the canteens (Later when you need to charge the card, use the canteen charging posts instead of the __oficial__ spots, they won't charge the __exchange student__ comission).
 * Find a bike, ask where you can find some during the registration day, there are plenty of 2nd or 1st hand options inside or near the campus. A bike is highly recommended given the size of the campus.
 * Enter every student wechat group you can find so you'll be notified of all the parties!
 
