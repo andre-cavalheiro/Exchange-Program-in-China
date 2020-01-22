@@ -13,7 +13,7 @@
 * Checkout what's happening in Beijing [here](https://www.thebeijinger.com/visitor-guide)
 * See the movie 'The last Emperor' before going to the forbidden city.
 * Go to the forbidden city before the weather is too hot (trust me).
-* Wednesdays = lots of free drinks in Wudaokou (student street). Also it's Quizz night in Lust! Fun spot to hang out, mostly foreigners.
+* Wednesdays = lots of free drinks in Wudaokou (student street). Also it's Quizz night in [Lush](https://www.tripadvisor.com/Restaurant_Review-g294212-d1056744-Reviews-Lush-Beijing.html)! Fun spot to hang out, mostly foreigners.
 
 # Travelling 
  * To buy train/plane tickets read [this](https://fr.trip.com/trains/how-to-buy-train-tickets.html/). (You can also buy them in wechat if you firgure out how). 
